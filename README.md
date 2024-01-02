@@ -2,7 +2,7 @@
 
 
 Bypass-Google-Play-Protect-Bypass-Xiaomi-Security.
-绕过 Google Play Protect 绕过小米安全
+绕过 Google Play Protect 绕过小米安全.
 
 
 
